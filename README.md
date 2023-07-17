@@ -5,4 +5,4 @@
 
 <p>My games: https://yair-mizrachi.itch.io/</p>
 
-<p>And if you want me to make you anything here is my fiverr profile: https://www.fiverr.com/yairmizrachi</p>
+<p>My fiverr page(i have packages there to buy if you want me to make anything for you): https://www.fiverr.com/yairmizrachi</p>
